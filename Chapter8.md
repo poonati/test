@@ -1,0 +1,1 @@
+Tips to improve your Blast searches is a summary of tne previous seven chapters as well as the authors expertise and is designe to help you get the most from your  blast searches. 
